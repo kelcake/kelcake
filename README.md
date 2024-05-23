@@ -1,4 +1,4 @@
-<p align="center"> ♡ ⠀　❛⠀　⠀itadori⠀　,⠀　she⠀　he　　, </p>
+<p align="center"> ♡ ⠀　❛⠀　⠀spoke⠀　,⠀　she⠀　he　　, </p>
 <p align="center"> ✸ the , ability to appreciate beauty  ,  is an important virtue ﹒  ❜ </p>
 
-<p align="center"> <img width"550" height"400" src="https://64.media.tumblr.com/cb04026c8d2fe471a7fd75bd58e06ca4/9a734a17b1b8ac66-ac/s1280x1920/2171b3eb3a2bd1cbc680adb2405a5bd7ec09feaf.pnj"> </p>
+<p align="center"> <img width"550" height"400" src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/33e303a0a53fdde0-2b/s2048x3072/fb7e326445709a54592b6f3732594f263eb4c3e4.pnj"> </p>
